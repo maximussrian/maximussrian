@@ -34,10 +34,10 @@ IoT & Hardware: ESP32, Sensors, Flutter
 
 Connect With Me
 
-📫 Email: your-email@example.com
+📫 Email: canonrian655@gmail.com
 
-🌐 LinkedIn: [Insert LinkedIn URL]
+🌐 LinkedIn: www.linkedin.com/in/rian-james-cañon-6391b53a3
 
-📷 Instagram: [Insert Instagram URL]
+📷 Facebook: https://www.facebook.com/itslasupremo/
 
 "Learning never exhausts the mind." – Leonardo da Vinci
